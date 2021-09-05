@@ -1,0 +1,2 @@
+# mojapierwszastrona
+zadania ze szkoły 
